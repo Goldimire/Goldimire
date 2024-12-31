@@ -1,16 +1,13 @@
-## Hi there 👋
+![1735608714414.png](https://github.com/user-attachments/assets/e6a9d140-df3e-43dc-98c1-9efe6d2dc219)
 
-<!--
-**Goldimire/Goldimire** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Greetings. I am Great_Day.
+The Supreme Leader of..
+The Days Union.
 
-Here are some ideas to get you started:
+Retired.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![1735608725925.png](https://github.com/user-attachments/assets/fe50a8dd-8e31-4fa7-ad4e-c2096f86a7f3)
+
+Thank you for visiting anyway. It's great to know some people still remember the myth.
+
+
